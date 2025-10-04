@@ -1,2 +1,2 @@
 # portfolio
-coming soon..
+Coming soon..
